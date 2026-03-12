@@ -1,2 +1,2 @@
 Martian is Launching soon...
-by Harsh Prajapati COOMING IN OCT 2026
+by Harsh Prajapati COOMING IN OCT 2026.
